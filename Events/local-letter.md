@@ -6,7 +6,7 @@ The conference is hosted by the **Institute of Network Society, China Art Academ
 
 The conference will feature four panels over two days, from 8:30 AM to 6:00 PM, covering a wide range of topics related to Technology and Society. Please find the detailed agenda at: https://www.caa-ins.org/archives/12164/2
 
-We are pleased to offer free lunch, water, and dessert breaks for all attendees. Registration is now open at: https://lu.ma/8ibuijhl , get a reservation now!
+We are pleased to offer free lunch, water, and dessert breaks for all attendees. Registration is now open at: https://lu.ma/8ibuijhl , **get a reservation now!**
 
 This event is co-hosted by the International College of Digital Innovation, Chiangmai University, and the Chiangmai University Blockchain Association (CMUBA), with the support of the Global Chinese Community(GCC) and 4seas.
 
