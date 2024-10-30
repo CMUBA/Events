@@ -1,4 +1,4 @@
-# Workshops
+# Events in CMUBA
 All workshops and documents and code
 
 ## Before you start
