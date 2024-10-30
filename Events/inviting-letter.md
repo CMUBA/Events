@@ -1,4 +1,5 @@
 Dear CMU researchers,
+<img src="https://raw.githubusercontent.com/jhfnetboy/MarkDownImg/main/img/202410301221842.PNG"/>
 
 We are thrilled to announce an academic conference on **"Polyphonic Global South: The Spaces of Technological Communication"** to be held at **ITSC 2nd floor, 201 room from 8th to 9th Nov**.
 
