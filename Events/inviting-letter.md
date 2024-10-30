@@ -8,7 +8,7 @@ The conference will feature four panels over two days, from 8:30 AM to 6:00 PM, 
 
 We are pleased to offer free lunch, water, and dessert breaks for all attendees. Registration is now open at: https://lu.ma/8ibuijhl , **get a reservation now!**
 
-This event is co-hosted by the International College of Digital Innovation, Chiangmai University, and the Chiangmai University Blockchain Association (CMUBA), with the support of the Global Chinese Community(GCC) and 4seas.
+This event is co-hosted by the International College of Digital Innovation, Chiangmai University, and the Chiangmai University Blockchain Association (CMUBA), with the support of the Global Chinese Commons(GCC) and 4seas.
 
 We look forward to your participation and the opportunity to learn from each other.
 
